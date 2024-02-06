@@ -24,11 +24,6 @@ The company can utilise this knowledge for its portfolio and risk assessment.
 #### Step 5: Results   
 
 
-### Contributors
-- Anushka Paradkar
-- Ritesh Vesalapu
-
-
 
 
 
